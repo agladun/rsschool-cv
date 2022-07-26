@@ -1,1 +1,1 @@
-# rsschool-cv
+https://agladun.github.io/rsschool-cv/cv
